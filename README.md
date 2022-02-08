@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Artbycat
 - 👀 I’m interested in illustration and character design, this GITHUB is mostly for classes
-- 🌱 I’m currently learning Digital Entertainment Design Engineering
+- 🌱 I’m currently learning Digital Entertainment Design
 - 💞️ I’m looking to collaborate on Videogames maybe
 - 📫 How to reach me Instagram: @art.bycat and my personal email catalinaquintana6277@gmail.com
 
